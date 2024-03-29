@@ -6,7 +6,7 @@
 
 💞️ I’m looking to collaborate on projects that combine data analysis with human resources insights, or any data-driven initiatives aimed at optimizing organizational processes.
 
-📫 How to reach me: You can reach out to me via email at [your.email@example.com] or connect with me on LinkedIn at [your LinkedIn profile URL].
+📫 How to reach me: You can reach out to me via email at muzakky67@gmail.com or connect with me on LinkedIn at https://www.linkedin.com/in/muzakky-ahmad-14561514b.
 
 😄 Pronouns: He/Him
 
